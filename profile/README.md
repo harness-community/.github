@@ -5,7 +5,6 @@
 🦑 Contributing
 
 ⚡️ Useful resources
-- [Discourse](https://community.harness.io)
 - [YouTube](https://youtube.com/@harnesscommunity)
 - [Reddit](https://www.reddit.com/r/harnesscommunity)
 
