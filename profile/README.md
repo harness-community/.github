@@ -1,4 +1,4 @@
-# Heya Harnessiblings❤️⚡️
+# Welcome Harness Community!
 
 🌈Join the growing community on Slack [here](https://join.slack.com/t/harnesscommunity/shared_invite/zt-2frobs97n-HwsLuNvfb6A7dEf_HKspHA) 🐙
 
